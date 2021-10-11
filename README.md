@@ -1,0 +1,2 @@
+# DDoS-Hejes
+DDOS HEJES NI BOSS
